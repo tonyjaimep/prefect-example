@@ -24,4 +24,7 @@ brevedad de pruebas.
 
 # Demo
 
-(Por subir al README)
+
+
+https://github.com/user-attachments/assets/a258c309-014d-4b4d-a858-472aab6f0532
+
